@@ -1,0 +1,1 @@
+# TaskWeek6_Computational-Intelegence_Nicandro-Jabez-Teguh
